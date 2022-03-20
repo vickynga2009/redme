@@ -1,0 +1,2 @@
+# redme
+soy estudiante de ARGENTINA PROGRAMA Y QUIERO APRENDER MAS
